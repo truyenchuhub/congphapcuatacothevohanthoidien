@@ -17,5 +17,5 @@ Phản phái chết bởi nói nhiều, chính phái chết bởi thánh mẫu, 
 
 Link truyện:
 
-[Công Pháp Của Ta Có Thể Vô Hạn Thôi Diễn](https://tutruyenchu.com/truyen/Cong-Phap-Cua-Ta-Co-The-Vo-Han-Thoi-Dien)
+[Công Pháp Của Ta Có Thể Vô Hạn Thôi Diễn](https://truyenchuhub.org/truyen/Cong-Phap-Cua-Ta-Co-The-Vo-Han-Thoi-Dien)
 </div>
